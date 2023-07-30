@@ -1,0 +1,1 @@
+Site agregador de conteúdo nerd e geek voltado como uma comunidade para quem gosta de cinema, séries, musica, livros.
